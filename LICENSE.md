@@ -1,4 +1,4 @@
-# 
+# new token sniper bot new Bot - auto-sell and volume-spike-detection is the best new token sniper bot, featuring auto-sell and volume-spike-detection. Fast, smart, and optimized
 
 
 
